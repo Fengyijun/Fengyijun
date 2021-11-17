@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Fengyijun
 - 👀 I’m interested in vehicle control with artificial intelligence
 - 🌱 I’m currently learning nothing special
-- 💞️ I’m looking to collaborate with lovely girls
+- 💞️ I’m looking to collaborate with lovely 👧s
 - 📫 Better don't reach me 
 
 <!---
